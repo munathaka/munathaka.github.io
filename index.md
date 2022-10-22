@@ -1,4 +1,4 @@
-
+<blockquote class="twitter-tweet"><p lang="qme" dir="ltr"><a href="https://t.co/S4nrX8igmK">https://t.co/S4nrX8igmK</a><a href="https://twitter.com/sevyn?ref_src=twsrc%5Etfw">@sevyn</a> <a href="https://twitter.com/MsGladysKnight?ref_src=twsrc%5Etfw">@MsGladysKnight</a></p>&mdash; RashardErika (@ThakaErikaCoraL) <a href="https://twitter.com/ThakaErikaCoraL/status/1583764488385269760?ref_src=twsrc%5Etfw">October 22, 2022</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
 [Make and Code a Light-Powered Device]https://www.jpl.nasa.gov/edu/learn/project/make-and-code-a-light-powered-device/)
 
 <div class="tumblr-post" data-href="https://embed.tumblr.com/embed/post/O7dDh5zlwBQXm5nOqhrgyQ/698852721126719488" data-did="ec6c7d03484eebc9d4019a0dd4a04cfdba98f0f1"><a href="https://www.ctkvi.com/post/698852721126719488/i-will-design-a-minimalistic-beautiful-logo-for">https://www.ctkvi.com/post/698852721126719488/i-will-design-a-minimalistic-beautiful-logo-for</a></div>  <script async src="https://assets.tumblr.com/post.js"></script>
