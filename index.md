@@ -1,4 +1,7 @@
- <div class="tumblr-post" data-href="https://embed.tumblr.com/embed/post/O7dDh5zlwBQXm5nOqhrgyQ/698852721126719488" data-did="ec6c7d03484eebc9d4019a0dd4a04cfdba98f0f1"><a href="https://www.ctkvi.com/post/698852721126719488/i-will-design-a-minimalistic-beautiful-logo-for">https://www.ctkvi.com/post/698852721126719488/i-will-design-a-minimalistic-beautiful-logo-for</a></div>  <script async src="https://assets.tumblr.com/post.js"></script>
+
+[Make and Code a Light-Powered Device]https://www.jpl.nasa.gov/edu/learn/project/make-and-code-a-light-powered-device/)
+
+<div class="tumblr-post" data-href="https://embed.tumblr.com/embed/post/O7dDh5zlwBQXm5nOqhrgyQ/698852721126719488" data-did="ec6c7d03484eebc9d4019a0dd4a04cfdba98f0f1"><a href="https://www.ctkvi.com/post/698852721126719488/i-will-design-a-minimalistic-beautiful-logo-for">https://www.ctkvi.com/post/698852721126719488/i-will-design-a-minimalistic-beautiful-logo-for</a></div>  <script async src="https://assets.tumblr.com/post.js"></script>
 
 # Muna/Muni
  I got poisoned at the library in my sleeping spot. Its got something to do with bubblegumfm and several studio members were raped in another part of downtown. Its a dramatic day for ktla and lapd and lafd
